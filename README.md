@@ -1,2 +1,1 @@
-https://www.crazygames.com/game/buildnow-gg
-https://www.crazygames.com/game/buildnow-gg
+https://sites.google.com/site/unblockedgame76/1v1-lol
